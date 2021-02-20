@@ -1,17 +1,20 @@
-# Week-5-
-Week 5 Hist 4916  My reflections
 Week 5 
-Collaboration reading
+Collaborative  reading
 
-Jenna – Cultural heritage and its institutions
+Jenna – The origins of the public museum 
+
 My reflections
+
+The real meaning of 'public' ... 
 
 Museum institutions should consider the participation of local communities when managing their collections; in this way, their projects have a higher chance of being culturally sensitive. 
 When museums try to understand and adapt to the needs of local communities, a spirit of cooperation is developed among community members and stakeholders. Participatory mapping is another way for museums to promote culture inclusiveness. It gives the community a chance to express their perceptions and social constructions; and also to demonstrate what cultural/historic pieces they consider significant or not. 
 
 
+
 Jacob – The political rationality of the museum
 My reflections
+
 Are museums supposed to only entertain? Inspire? Educate?
 Or…
 Do museums have the political duty to change the world?
